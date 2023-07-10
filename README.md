@@ -2,7 +2,7 @@
 - 👀 I’m interested in running
 - 🌱 I’m currently learning fx markets
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me ...
+- 📫 How to reach me ... himm. i dont know. plz do not reach me.
 
 <!---
 deli-manyak/deli-manyak is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
